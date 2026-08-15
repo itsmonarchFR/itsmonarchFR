@@ -1,5 +1,5 @@
 <p align="center">
-kaden⠀ou⠀macro⠀⠀🌈⠀⠀any/mirror⠀prns
+kaden⠀ou⠀ryker⠀⠀🌈⠀⠀any/mirror⠀prns
 </p>
 <p align="center">
 i like observer trio and derapchu
