@@ -1,8 +1,12 @@
+⠀
+⠀
+⠀
+⠀
 <p align="center">
-kaden⠀ou⠀ryker⠀⠀🌈⠀⠀any/mirror⠀prns
+vee⠀or⠀xavi⠀⠀🍏⠀⠀mirror⠀prns
 </p>
 <p align="center">
-i like observer trio and derapchu
+berryvision+shellevision lvr   ^_^
 </p>
 ⠀
 ⠀
@@ -13,7 +17,7 @@ i like observer trio and derapchu
 ⠀
 ⠀
 <p align="center">
-^3^
+𓎟𓎟𓎟𓎟
 </p>
 ⠀
 ⠀
