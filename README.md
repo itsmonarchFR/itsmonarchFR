@@ -6,7 +6,7 @@
 vee⠀or⠀xavi⠀⠀🍏⠀⠀mirror⠀prns
 </p>
 <p align="center">
-<a href="https://github.com/havateur" target="_blank">main</a>!
+<a href="https://github.com/havateur" target="_blank">main!</a>
 </p>
 ⠀
 ⠀
