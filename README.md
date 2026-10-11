@@ -6,7 +6,7 @@
 vee⠀or⠀xavi⠀⠀🍏⠀⠀mirror⠀prns
 </p>
 <p align="center">
-berryvision+shellevision lvr   ^_^
+monarvey + samony
 </p>
 ⠀
 ⠀
